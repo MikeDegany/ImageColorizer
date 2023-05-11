@@ -6,7 +6,7 @@ _Rana Ghoneim (_[_RanaGhoneim@my.unt.edu_](mailto:RanaGhoneim@my.unt.edu)_)_
 
 _Saja Al Kawari (_[_SajaAlkarawi@my.unt.edu_](mailto:SajaAlkarawi@my.unt.edu)_)_
 
-_Mike Degany (_[_MohammadDehghanitezerjani@my.unt.edu_](mailto:MohammadDehghanitezerjani@my.unt.edu)_)_
+_Mike Degany (_[_Mike.Degany@gmail.com_](mailto:Mike.Degany@gmail.com)_)_
 
 _Shridhar Kshirsagar (_[_ShridharKshirsagar@my.unt.edu_](mailto:ShridharKshirsagar@my.unt.edu)_)_
 
